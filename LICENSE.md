@@ -1,4 +1,4 @@
-# 
+# updated birdeye sniper bot | priority-gas-auctions + slippage-control offers the most advanced birdeye sniper bot, with priority-gas-auctions and slippage-control. Ideal for
 
 
 
